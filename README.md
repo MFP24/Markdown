@@ -13,3 +13,13 @@ Huérfano de una lejana aldea china, **Kenji** fue recogido por un monje anciano
 
 
 ![Que empiece la pelea!](https://github.com/MFP24/Markdown/blob/master/characters_comparisons_1.PNG)
+
+
+
+Créditos:
+
+Victor Redondo
+
+Guillem Girona
+
+Manel Ferrera
